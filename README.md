@@ -1,3 +1,1 @@
-Hello!
-
-Just working away here, don't mind me.
+Looking to find where my love of sports, games, and math can intersect in interesting ways!
